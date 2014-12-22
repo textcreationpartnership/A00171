@@ -35,11 +35,31 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Articles to be enquired of, throughout the whole diocesse of Chichester ministred and giuen in charg
+ARTICLES TO BE ENQVIRED OF, THROVGHOVT The whole Dioceſſe of CHICHESTER: Miniſtred and giuen in char〈1… pages missing〉3 Whether are there placed by the regiſter, two tables, containing the ſeverall ra
+1. The forme of the Oath which according to the 119. Canon, is to be adminiſtred vnto the Church-wardens and Sidemen.
+
 #####Body#####
-Articles to be enquired of, throughout the whole diocesse of Chichester ministred and giuen in charg
+
+1. Articles concerning Religion and Doctrine.
+
+1. Articles concerning diuine Seruice and adminiſtration of the Sacraments.
+
+1. Articles concerning the Church, the Ornaments, ſacred vtenſils, and poſſeſſions of the ſame.
+
+1. Articles concerning Miniſters and Preachers of Gods word.
+
+1. Articles concerning Matrimonie.
+
+1. Articles concerning the Church-wardens.
+
+1. Articles concerning the Pariſhioners.
+
+1. Articles concerning Schoole-maſters, Phyſitians, and Chirurgians, and Pariſh Clarkes.
+
+1. Articles concerning Eccleſiaſticall Officers.
+
 #####Back#####
-Articles to be enquired of, throughout the whole diocesse of Chichester ministred and giuen in charg
+MEmorandum, it is lawfull for euery Miniſter (be he Parſon, Vicar, or Curate) to preſent any enormit
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
