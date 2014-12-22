@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-ARTICLES TO BE ENQVIRED OF, THROVGHOVT The whole Dioceſſe of CHICHESTER: Miniſtred and giuen in char〈1… pages missing〉3 Whether are there placed by the regiſter, two tables, containing the ſeverall ra
+〈1… pages missing〉3 Whether are there placed by the regiſter, two tables, containing the ſeverall ra
 1. The forme of the Oath which according to the 119. Canon, is to be adminiſtred vnto the Church-wardens and Sidemen.
 
 #####Body#####
